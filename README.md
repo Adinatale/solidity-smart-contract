@@ -1,1 +1,1 @@
-# sAntoine Di Natale et Théo MATHIEU
+# Antoine Di Natale et Théo MATHIEU
