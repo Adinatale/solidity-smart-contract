@@ -1,1 +1,1 @@
-# solidity-smart-contract
+# sAntoine Di Natale et Théo MATHIEU
